@@ -1,0 +1,2 @@
+# Al-Xorazmiy
+loyiha boshlandi
